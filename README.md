@@ -4,4 +4,5 @@ I'm 16 years old 😸
 - 👩‍🎓 I'm currently attending high school ...
 - 📖 I like to read
 - 🐴 I love animals
+- Future veterinary doctor
 - ![](https://media1.tenor.com/m/RHGBEdHkYBQAAAAC/hermione-granger.gif)
